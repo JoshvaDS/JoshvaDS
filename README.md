@@ -7,6 +7,7 @@
 
 ## 📫 How to Reach Me
 - **Email:** joshvayousuf@gmail.com
+- **LinkedIn:** Joshva DS
 
 ## 😄 Pronouns
 - Mr.
